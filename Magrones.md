@@ -1,0 +1,2 @@
+Eu gostaria de trabalhar na area de desenvolvimento , pois a area de criação de novos sistemas é o que mais me chama atenção, ou na area de suporte, pois é uma função muito importante e com grande necessidade no mercado, a manutenção de um sistema é muito importante no dia dia de uma empresa ou em um serviço oferecido a um cliente de forma terceirizada.
+Como ainda não trabalho na area busco uma empresa que seja flexivel no ponto de vista de aprendizado pois minha prioridade é adquirir conhecimento e experiencia para me tornar um profissional mais completo.
